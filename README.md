@@ -9,3 +9,4 @@ com intenção de criar e compartilhar soluções e ideias.
 * [Instagram](https://www.instagram.com/dimensaoalfa/)
 * [Blog](https://dimensaoalfa.blogspot.com)
 * [Dimensão Alfa](https://www.dimensaoalfa.com.br)
+* [Blog WSRicardo](https://wsricardo.blogspot.com)
